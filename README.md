@@ -1,1 +1,1 @@
-![thinkinabout](https://gifdb.com/images/high/funny-hmm-thinking-osita-iheme-zquga659jg88sh4t.gif)
+![thinkinabout](https://media.giphy.com/media/13HgwGsXF0aiGY/giphy.gif)
